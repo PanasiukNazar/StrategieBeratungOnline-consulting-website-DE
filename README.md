@@ -1,1 +1,1 @@
-# StrategieBeratungOnline-consulting-website-DE
+# StrategieBeratung-consulting-website-DE
